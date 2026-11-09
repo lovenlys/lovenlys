@@ -1,9 +1,7 @@
 hihi, im lovenly
 
-im interested in coding and what goes in it lolz
+i'm interested in coding 
 
-im currently learning nothing at school :)
-
-how to reach me: twitter or discord: no<3#5087
+how to reach me: discord -> mentasdefresita
 
 
