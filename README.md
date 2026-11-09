@@ -1,7 +1,6 @@
-hihi, im lovenly
+hello there! my name is nara :)
 
-i'm interested in coding 
+i'm a third-year commercial engineering student at INTEC.
 
-how to reach me: discord -> mentasdefresita
-
-
+let's get in touch!
+discord → mentasdefresita
